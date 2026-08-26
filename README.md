@@ -1,4 +1,4 @@
-# amghezi
+# amghezi (shit)
 
 یه گاو دارم چجوره
 
