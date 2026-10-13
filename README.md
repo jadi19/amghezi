@@ -1,5 +1,5 @@
 # amghezi
-
+#writing the gav hahsan chejore poem by me
 یه گاو دارم چجوره
 
 شیرشو بردن هندسون
